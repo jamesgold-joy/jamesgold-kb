@@ -1,0 +1,18 @@
+---
+title: "치어리더 카일리 딕슨(Kylie Dickson), SNS에서 화제-댈러스 카우보이스 [제임스골드 인물]"
+url: https://james-money.tistory.com/entry/%EC%B9%98%EC%96%B4%EB%A6%AC%EB%8D%94-%EC%B9%B4%EC%9D%BC%EB%A6%AC-%EB%94%95%EC%8A%A8Kylie-Dickson-SNS%EC%97%90%EC%84%9C-%ED%99%94%EC%A0%9C-%EB%8C%88%EB%9F%AC%EC%8A%A4-%EC%B9%B4%EC%9A%B0%EB%B3%B4%EC%9D%B4%EC%8A%A4-%EC%A0%9C%EC%9E%84%EC%8A%A4%EA%B3%A8%EB%93%9C-%EC%9D%B8%EB%AC%BC
+channel: 티스토리
+date: 2025-11-18
+tags: [카테고리 없음]
+source: https://james-money.tistory.com
+---
+
+# 치어리더 카일리 딕슨(Kylie Dickson), SNS에서 화제-댈러스 카우보이스 [제임스골드 인물]
+
+---
+
+## 🔗 연결
+- **채널**: [[티스토리]]
+- **주제**: [[카테고리 없음]]
+- **원문**: https://james-money.tistory.com/entry/%EC%B9%98%EC%96%B4%EB%A6%AC%EB%8D%94-%EC%B9%B4%EC%9D%BC%EB%A6%AC-%EB%94%95%EC%8A%A8Kylie-Dickson-SNS%EC%97%90%EC%84%9C-%ED%99%94%EC%A0%9C-%EB%8C%88%EB%9F%AC%EC%8A%A4-%EC%B9%B4%EC%9A%B0%EB%B3%B4%EC%9D%B4%EC%8A%A4-%EC%A0%9C%EC%9E%84%EC%8A%A4%EA%B3%A8%EB%93%9C-%EC%9D%B8%EB%AC%BC
+- **관련 글**: [[신진서는 어떤 전략을 썼길래 AI를 이겼나]] · [[원화가 달러당 1,320원을 뚫었다~외국인 17조 매도에도 환율이 2년 만에 최저로 떨어진 3가지 이유]] · [[코스피 -21.6%에서 다시 5,552, 반등보다 먼저 확인할 세 가지 숫자]] · [[반등 하루 만에 반납한 5,552선~외국인 7,808억 매도, 그런데 환율이 1,325원까지 밀렸다]] · [[정규장은 218,000원에서 멈췄는데 애프터마켓은 223,500원을 찍었다]] · [[5,768 반등 둘째 날, 삼성전자 218,000원이 답하지 못한 세 가지 질문]] · [[수익률 1551%에서 단 6일 만에 붕괴, 그 직후 24세 AI 천재는 '검은 결혼식' 올려]] · [[장중 3.17% 빠졌다가 1.76% 올라 5,768, 코스피를 살린 건 외국인이 아니라 '반도체 밖'이었다]]
