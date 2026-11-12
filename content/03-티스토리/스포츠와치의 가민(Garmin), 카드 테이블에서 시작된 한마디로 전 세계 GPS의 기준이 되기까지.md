@@ -1,0 +1,18 @@
+---
+title: "스포츠와치의 가민(Garmin), 카드 테이블에서 시작된 한마디로 전 세계 GPS의 기준이 되기까지 [제임스골드 슈퍼휴먼]"
+url: https://james-money.tistory.com/entry/%EC%8A%A4%ED%8F%AC%EC%B8%A0%EC%99%80%EC%B9%98%EC%9D%98-%EA%B0%80%EB%AF%BCGarmin-%EC%B9%B4%EB%93%9C-%ED%85%8C%EC%9D%B4%EB%B8%94%EC%97%90%EC%84%9C-%EC%8B%9C%EC%9E%91%EB%90%9C-%ED%95%9C%EB%A7%88%EB%94%94%EB%A1%9C-%EC%A0%84-%EC%84%B8%EA%B3%84-GPS%EC%9D%98-%EA%B8%B0%EC%A4%80%EC%9D%B4-%EB%90%98%EA%B8%B0%EA%B9%8C%EC%A7%80-%EC%A0%9C%EC%9E%84%EC%8A%A4%EA%B3%A8%EB%93%9C-%EC%8A%88%ED%8D%BC%ED%9C%B4%EB%A8%BC
+channel: 티스토리
+date: 2026-10-10
+tags: [슈퍼 휴먼의 길]
+source: https://james-money.tistory.com
+---
+
+# 스포츠와치의 가민(Garmin), 카드 테이블에서 시작된 한마디로 전 세계 GPS의 기준이 되기까지 [제임스골드 슈퍼휴먼]
+
+---
+
+## 🔗 연결
+- **채널**: [[티스토리]]
+- **주제**: [[슈퍼 휴먼의 길]]
+- **원문**: https://james-money.tistory.com/entry/%EC%8A%A4%ED%8F%AC%EC%B8%A0%EC%99%80%EC%B9%98%EC%9D%98-%EA%B0%80%EB%AF%BCGarmin-%EC%B9%B4%EB%93%9C-%ED%85%8C%EC%9D%B4%EB%B8%94%EC%97%90%EC%84%9C-%EC%8B%9C%EC%9E%91%EB%90%9C-%ED%95%9C%EB%A7%88%EB%94%94%EB%A1%9C-%EC%A0%84-%EC%84%B8%EA%B3%84-GPS%EC%9D%98-%EA%B8%B0%EC%A4%80%EC%9D%B4-%EB%90%98%EA%B8%B0%EA%B9%8C%EC%A7%80-%EC%A0%9C%EC%9E%84%EC%8A%A4%EA%B3%A8%EB%93%9C-%EC%8A%88%ED%8D%BC%ED%9C%B4%EB%A8%BC
+- **관련 글**: [[매운 라면 한 봉지에 나트륨 하루 기준치 104% 매운맛 4단계 제품과 포화지방 위험까지]] · [[오전장 코스피, 뉴욕 랠리에도 차익실현에 5,600선 등락]] · [[오전장 코스피, 뉴욕 랠리에도 차익실현에 5,600선 등락 (2)]] · [[오전장 코스피, 뉴욕 랠리에도 차익실현에 5,600선 등락 (3)]] · [[AI 반도체 미래-‘반도체 농부’ 1GW 데이터센터로 3.5만명 들썩인 SK AI 서밋 현장]] · [[강레오 셰프의 맛있는 양송이버섯 볶음과 만능 육수가 될 새우 육수 만들기]] · [[조서형 셰프의 재벌집 나물요리 고급진 맛]] · [[검찰 항소 포기로 무죄가 확정된 대장동 1심의 무죄 부문-7800억은 환수 못하는 걸로 결론]]
